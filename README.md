@@ -1,1 +1,2 @@
 # IKT
+kapcsolat próba
