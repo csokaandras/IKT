@@ -3,4 +3,4 @@ kapcsolat próba
 ezt ide írom
 henlóó
 benlo
-izé
+izé mhm
